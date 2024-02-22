@@ -1,6 +1,6 @@
 # Pollo al ajillo receta de la abuela
 
-![Pollo al ajillo receta de la abuela](https://cdn0.recetasgratis.net/es/posts/8/2/1/pollo_al_ajillo_receta_de_la_abuela_77128_600.webp)
+ ![Pollo al ajillo receta de la abuela](https://cdn0.recetasgratis.net/es/posts/8/2/1/pollo_al_ajillo_receta_de_la_abuela_77128_600.webp)
 
 ## Ingredientes
 - [ ] 2 cuartos traseros de pollo
@@ -21,7 +21,7 @@
 
 **2.** **Trocea los cuartos de pollo** separando las patas y los muslos. En este caso, también **agregamos las alas** y, si quieres, puedes usar también la **pechuga**, dependiendo de la cantidad de porciones que necesites preparar. Retira la piel y la grasa, también condimenta con sal y pimienta.
 
-![](image.png)
+![](https://cdn0.recetasgratis.net/es/posts/8/2/1/pollo_al_ajillo_de_la_abuela_77128_paso_1_600.webp)
 
 **3.** Coloca una sartén en la hornalla junto con unas 2 o 3 cucharadas de **aceite y los dientes de ajo enteros.** Ellos se encargarán de aromatizar el aceite y comenzar a aportar sabor a la preparación. Cuando comiencen a dorarse, **añade las presas de pollo** y dóralas por todos lados. Luego, retira y reserva.
 > ***Truco:** la idea en este punto, es solo dorarlas, no cocinarlas por completo.*
